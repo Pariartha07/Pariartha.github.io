@@ -1,1 +1,1 @@
-Pariartha07.github.io
+Pariartha.github.io
